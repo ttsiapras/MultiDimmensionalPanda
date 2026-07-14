@@ -1,0 +1,1 @@
+3D Printed Ball Bearing With AIrsoft BB's by Cyber7696 on Thingiverse: https://www.thingiverse.com/thing:4547652
